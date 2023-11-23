@@ -5,3 +5,6 @@ But I'm really glad I'm doing it, mostly on my own, but constantly inspired by l
 It gets more interesting every day.
 So far so good.
 Stay tuned.
+
+
+Current progress: 11%
