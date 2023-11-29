@@ -8,3 +8,8 @@ Stay tuned.
 
 
 Current progress: 11%
+
+Day 12
+A lot of progress in the last 2 weeks, mainly because I'm taking this more seriously than before.
+Also getting into more boring parts, so keeping up and not giving up is very important at the moment.
+Current progress: 22%.
